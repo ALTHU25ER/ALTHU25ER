@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ALTHU25ER
+- 👀 I’m interested in music production, philosophy, and finance
+- 🌱 I’m currently learning philosophy
+- 💞️ I’m looking to collaborate on philosophy
+- 📫 How to reach me althusserproanoofficial@gmail.com
